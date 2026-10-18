@@ -14,4 +14,4 @@ basically the lore:
 =========================
 
 <div align="center">
-her outfit in pony town isn't exactly what I imagine so until I draw her that's her fit for now (please don't attack me if you see this as cringe I thought i was a really good OC lore)
+her outfit in pony town isn't exactly what I imagine so until I draw her that's her fit for now (please don't attack me if you see this as cringe I thought it was a really good OC lore)
